@@ -15,7 +15,7 @@ Eindhoven heeft verschillende discord servers die zijn goed gekeurd door het sta
 
 | Server | Beschrijving | Invite link |
 |---|---|:---:|
-|Eindhoven Roleplay| Main discord server van Eindhoven | [Invite](https://discord.gg/wrp) |
-|Eindhoven Support| Support discord server van Eindhoven | [Invite](https://discord.gg/5vDsktG9Qn) |
-|Eindhoven Cardealer| Cardealer discord server van Eindhoven | [Invite](https://discord.gg/UcCG2kn) |
-|Eindhoven Flightschool| Vliegschool discord server van Eindhoven | [Invite](https://discord.gg/JMrvTrZqcz) |
+|Eindhoven Roleplay| Main discord server van Eindhoven | [Invite](https://discord.gg/eindhovenrp) |
+|Eindhoven Support| Support discord server van Eindhoven | [Invite](https://discord.gg/u3SXSbGfjg) |
+|Eindhoven Cardealer| Cardealer discord server van Eindhoven | [Invite](https://discord.gg/ugPcmd66FX) |
+|Eindhoven Flightschool| Vliegschool discord server van Eindhoven | [Invite](https://discord.gg/nietingebruik) |
