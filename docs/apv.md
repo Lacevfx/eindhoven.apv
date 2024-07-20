@@ -354,6 +354,14 @@ De tijdsduur hiervoor is maximaal een week.
 13. Indien je onbewust voor de 2de keer wordt doodgeschoten in een gang war omdat je op een bepaalde plek bent, is dit op eigen risico.
 14. Bij overtreding zal dit resulteren in een straf volgens maximaal de 4e categorie.
 
+### Artikel 32 - Reanimeren Als Overheidsdiensten
+
+1. Het reanimeren van een politie of kmar collega als jij zelf politie of kmar bent is verboden.
+2. Het reanimeren van overheidscollega's mag aleen als ambulance medewerker.
+3. Een voorbeeld van lid 1, je bent met jouw collega in een shootout met een crimineel en de crimineel vlucht maar je collega is dood je mag dan niet jouw collega omhoog helpen ook niet als je er niet bij bettrokken bent en je komt aleen aan rijden.
+4. als DSI of Recherche mag dit ook niet.
+5. Het overtreden van lid 1 of 4 zal resulteren in een straf van de minimaal de 4e catagorie.
+
 
 ## Eiland
 
